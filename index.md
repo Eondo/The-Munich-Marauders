@@ -3,6 +3,4 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 
 ### This website is currently undergoing construction.
 
-### Contact us via
-[E-mail](contact@munichmarauders.org), 
-[Facebook group](https://www.facebook.com/groups/2408737062515597/)
+**Contact** us via contact@munichmarauders.org, or join our [Facebook group](https://www.facebook.com/groups/2408737062515597/).
