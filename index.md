@@ -1,4 +1,4 @@
-## Welcome to the Munich local chapter of Harry Potter and the Sacred Text
+## Welcome fellow muggle!
 We are a local chapter of [Harry Potter and the Sacred Text](https://www.harrypottersacredtext.com). We meet regularily to treat the Harry Potter books as sacred, to build a community of love, respect and thoughtfulness. We support trans-liberation and oppose J.K. Rowlings hateful rethoric on the issue. We are not a cult, but of course that is what a cult would say, isn't it?
 
 ### Contact
