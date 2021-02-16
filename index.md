@@ -3,5 +3,5 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 
 #### This website is currently undergoing construction.
 
-### Contact
-leon.schoeppl@mailbox.org
+#### Contact
+contact@munichmarauders.org
