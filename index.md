@@ -5,6 +5,6 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 
 **Reach out to us** via contact@munichmarauders.org, or join our [Facebook group](https://www.facebook.com/groups/2408737062515597/).
 
-**Our next Meeting** will be on book 3, chapter 7 *The Boggart in the Wardrobe* through the theme of *humor*, using *sacred imagination*.
+**Our next Meeting** will be on book 3, chapter 7 *The Boggart in the Wardrobe* through the theme of *humor*, using *sacred imagination*. Due to the pandemic we are currently meeting via *Zoom*.
 
 [Check out](https://munich-marauders-fanfiction.tumblr.com/) the **wholesome fanfiction** written by one of our members.
