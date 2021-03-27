@@ -6,7 +6,7 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 
 ---
 
-**Our next Meeting** will take place at 4 pm on Saturday March 27 and focus on book 3, chapter 11 *The Firebolt* through the theme of *beauty*, using [*PaRDeS*](https://en.wikipedia.org/wiki/Pardes_(Jewish_exegesis)).
+**Our next Meeting** will take place at 4 pm on Saturday March 27 and focus on book 3, chapter 11 *The Firebolt* through the theme of *duty*, using [*PaRDeS*](https://en.wikipedia.org/wiki/Pardes_(Jewish_exegesis)).
 
 ---
 
