@@ -6,7 +6,7 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 
 ---
 
-**Our next Meeting** will take place at 4 pm on Sunday April 11 and focus on book 3, chapter 12 *The Patronus* through the theme of *bravery*, using [*PaRDeS*](https://en.wikipedia.org/wiki/Pardes_(Jewish_exegesis)).
+**Our next Meeting** will take place at 4 pm on Sunday April 11 and focus on book 3, chapter 12 *The Patronus* through the theme of ~~*bravery*~~ *optimism*, using [*PaRDeS*](https://en.wikipedia.org/wiki/Pardes_(Jewish_exegesis)).
 
 ---
 
