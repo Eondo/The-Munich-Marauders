@@ -22,4 +22,4 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 Other favorite **sacred practices:** [*PaRDeS*](https://en.wikipedia.org/wiki/Pardes_(Jewish_exegesis)), [*Lectio Divina*](https://en.wikipedia.org/wiki/Lectio_Divina), *Sacred Imagination* ...
 
 ---
-**Last updated** April 10 2021.
+**Last updated** April 13 2021.
