@@ -6,7 +6,7 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 
 ---
 
-**Our next Meeting** will take place at 4 pm on Saturday Mai 1 and focus on book 3, chapter 15 *The quidditch final* through the theme of ~~*class struggle*~~ *pain*, using [*Lectio Divina*](https://en.wikipedia.org/wiki/Lectio_Divina).
+**Our next Meeting** will take place at **7 pm** on Saturday Mai 1 and focus on book 3, chapter 15 *The quidditch final* through the theme of ~~*class struggle*~~ *pain*, using [*Lectio Divina*](https://en.wikipedia.org/wiki/Lectio_Divina).
 
 ---
 
@@ -22,4 +22,4 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 Other favorite **sacred practices:** [*PaRDeS*](https://en.wikipedia.org/wiki/Pardes_(Jewish_exegesis)), [*Florilegium*](https://en.wikipedia.org/wiki/Florilegium), *Sacred Imagination* ...
 
 ---
-**Last updated** April 25 2021.
+**Last updated** April 26 2021.
