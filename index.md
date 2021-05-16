@@ -22,4 +22,4 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 Our favorite **sacred practices:** [*PaRDeS*](https://en.wikipedia.org/wiki/Pardes_(Jewish_exegesis)), [*Florilegium*](https://en.wikipedia.org/wiki/Florilegium), *Sacred Imagination*, [*Lectio Divina*](https://en.wikipedia.org/wiki/Lectio_Divina) ...
 
 ---
-**Last updated** Mai 15 2021
+**Last updated** on Mai 15 2021.
