@@ -9,7 +9,9 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 **Our next Meeting** will take place at **4 pm** on Sunday Mai 23 and focus on book 3, chapter 18 *Moony, Wormtail, Padfoot, and Prongs* through the theme of *isolation*, using *Sacred Imagination*, so you can pick a passage!
 
 ---
+
 ![Some of our members](group_pic_tiny.jpg)
+
 
 ---
 
