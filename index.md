@@ -9,6 +9,9 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 **Our next Meeting** will take place at **4 pm** on Sunday Mai 23 and focus on book 3, chapter 18 *Moony, Wormtail, Padfoot, and Prongs* through the theme of *isolation*, using *Sacred Imagination*, so you can pick a passage!
 
 ---
+![Some of our members](https://github.com/Eondo/The-Munich-Marauders/blob/gh-pages/group_pic.jpg)
+
+---
 
 **Meeting Agenda:** Due to the pandemic we are currently meeting digitally via *Zoom*, reach out to us if you want to join a meeting. We start each session by *solemly swearing we are up to no good* and by - anyone who feels comfortable doing so - sharing a personal thorn and rose from since the previous meeting. Before entering the theme discussions, one of the participants does a *thirty-second-recap* of the current chapter. After the person moderating the day's meeting guides us through the theme discussion, we finish it off with a sacred practice, followed by each of the participants blessing a character from the chapter. After a short *miscellaneous* section which mostly focusses on group-organisation, we officially finish the meeting with *mischief managed*, before we let the session derail into our many - optional - muggle studies tangents. While most of our members do speak German, the discussions are held in English, just like the original texts and the podcast.
 
