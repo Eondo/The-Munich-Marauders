@@ -6,7 +6,7 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 
 ---
 
-**Our next Meeting** will take place at **4 pm** on Saturday Mai 29 and focus on book 3, chapter 19 *The servant of Lord Voldemort* through the theme of *mercy*, using *Sacred Imagination*, so you can pick a passage!
+**Our next Meeting** will take place at **4 pm** on Saturday Mai 29 and focus on book 3, chapter 19 *The servant of Lord Voldemort* through the theme of *mercy*, using *Sacred Imagination*, so feel free to pick a passage!
 
 ---
 
