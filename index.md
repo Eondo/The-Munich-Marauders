@@ -6,7 +6,7 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 
 ---
 
-**Our next Meeting** will take place at 4 pm on Sunday June 6 and focus on book 3, chapter 20 *The Dementor's Kiss* through the theme of justice, using *Sacred Imagination*, so feel free to pick a passage!
+**Our next Meeting** will take place at 4 pm on Sunday June 6 and focus on book 3, chapter 20 *The Dementor's Kiss* through the theme of *justice*, using *Sacred Imagination*, so feel free to pick a passage!
 
 ---
 
