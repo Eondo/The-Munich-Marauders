@@ -6,7 +6,7 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 
 ---
 
-**Our next Meeting** will take place at **4 pm** on Saturday Mai 29 and focus on book 3, chapter 19 *The servant of Lord Voldemort* through the theme of ~~*mercy*~~ [*epistemic injustice*](https://plato.stanford.edu/entries/feminist-social-epistemology/#EpiInj), using *Sacred Imagination*, so feel free to pick a passage!
+**Our next Meeting** will take place at 4 pm on Sunday June 6 and focus on book 3, chapter 20 *The Dementor's Kiss* through the theme of justice, using *Sacred Imagination*, so feel free to pick a passage!
 
 ---
 
@@ -27,4 +27,4 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 Our favorite **sacred practices:** [*PaRDeS*](https://en.wikipedia.org/wiki/Pardes_(Jewish_exegesis)), [*Florilegium*](https://en.wikipedia.org/wiki/Florilegium), *Sacred Imagination*, [*Lectio Divina*](https://en.wikipedia.org/wiki/Lectio_Divina) ...
 
 ---
-**Last updated** on Mai 23 2021.
+**Last updated** on Mai 30 2021.
