@@ -6,7 +6,7 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 
 ---
 
-**Our next Meeting** will take place at 4 pm on Saturday June 12 and focus on book 3, chapter 22 *Owl Post Again* through the theme of *love*, using [*Florilegium*](https://en.wikipedia.org/wiki/Florilegium).
+**Our next Meeting** will take place at 4 pm on Saturday June 12 and focus on book 3, chapter 22 *Owl Post Again* through the theme of *love*, using [*Florilegium*](https://en.wikipedia.org/wiki/Florilegium) - so pick a sparklet!
 
 ---
 
