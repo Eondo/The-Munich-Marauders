@@ -6,7 +6,7 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 
 ---
 
-**Our next Meeting** will take place at 4 pm on Saturday June 12 and focus on book 3, chapter 21 *Hermione's Secret* through the theme of *delight*, using [*PaRDeS*](https://en.wikipedia.org/wiki/Pardes_(Jewish_exegesis)).
+**Our next Meeting** will take place at 4 pm on Saturday June 12 and focus on book 3, chapter 22 *Owl Post Again* through the theme of *love*, using [*Florilegium*](https://en.wikipedia.org/wiki/Florilegium).
 
 ---
 
@@ -27,4 +27,4 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 Our favorite **sacred practices:** [*PaRDeS*](https://en.wikipedia.org/wiki/Pardes_(Jewish_exegesis)), [*Florilegium*](https://en.wikipedia.org/wiki/Florilegium), *Sacred Imagination*, [*Lectio Divina*](https://en.wikipedia.org/wiki/Lectio_Divina) ...
 
 ---
-**Last updated** on June 6 2021.
+**Last updated** on June 12 2021.
