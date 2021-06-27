@@ -6,7 +6,7 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 
 ---
 
-**Our next Meeting** will take place at 4 pm on Saturday June 26 and be a celebration of our favorite moments of book 3, which we just finished this weekend!
+**Our next Meeting** will take place at 4 pm on Saturday Juli 10 and focus on book 4, chapter 1 *The Riddle House* through the theme of *instinct*, using [*Florilegium*](https://en.wikipedia.org/wiki/Florilegium), so pick a sparklet!
 
 ---
 
@@ -27,4 +27,4 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 Our favorite **sacred practices:** [*PaRDeS*](https://en.wikipedia.org/wiki/Pardes_(Jewish_exegesis)), [*Florilegium*](https://en.wikipedia.org/wiki/Florilegium), *Sacred Imagination*, [*Lectio Divina*](https://en.wikipedia.org/wiki/Lectio_Divina) ...
 
 ---
-**Last updated** on June 21 2021.
+**Last updated** on June 27 2021.
