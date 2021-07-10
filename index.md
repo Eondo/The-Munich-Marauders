@@ -28,7 +28,7 @@ Our favorite **sacred practices:**
 * [*PaRDeS*](https://en.wikipedia.org/wiki/Pardes_(Jewish_exegesis)): 4 step jewish practice, in which we pick a word and discuss its (i) literal and (ii) allegoric meaning, (iii) track it throughout the texts and finally hope that a (iv) secret meaning reveals itself.
 * [*Florilegium*](https://en.wikipedia.org/wiki/Florilegium): Everyone brings a sparklet and we combine in pairs to read them back to back, quickly discuss and turn the sentences around.
 * *Sacred Imagination*: Someone prepares and reads a scene from the chapter, while the others are invited to close their eyes. Afterwards we discuss how we felt and whom we imagined ourselves as.
-* [*Lectio Divina*](https://en.wikipedia.org/wiki/Lectio_Divina): 4 step catholic practice, in which we pick a random sentence and answer - in order: Where are we in the story? What allegorical images [...] come to mind? What experiences from our own lives does this remind us of? And finally: What actions are do we feel called to take?
+* [*Lectio Divina*](https://en.wikipedia.org/wiki/Lectio_Divina): 4 step catholic practice, in which we pick a random sentence and answer - in order: Where are we in the story? What allegorical images [...] come to mind? What experiences from our own lives does this remind us of? And finally: What actions do we feel called to take?
 * [...]
 
 ---
