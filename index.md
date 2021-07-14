@@ -32,4 +32,4 @@ Our favorite **sacred practices:**
 * [...]
 
 ---
-**Last updated** on Juli 10 2021.
+**Last updated** on Juli 14 2021.
