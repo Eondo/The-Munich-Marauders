@@ -10,7 +10,7 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 * [Check out](https://archiveofourown.org/users/Lemikita/pseuds/Lemikita) the **wholesome fanfiction** written by one of our members.
 
 * Comming soon: Our official group canon, as collected over many meetings and *muggle studies* sessions!
-* 
+
 * Last updated on Juli 14 2021.
 
 ![Some of our members](group_pic_tiny.jpg)
