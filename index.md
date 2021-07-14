@@ -10,6 +10,7 @@ We are the Munich local chapter of the [Harry Potter and the Sacred Text Podcast
 * [Check out](https://archiveofourown.org/users/Lemikita/pseuds/Lemikita) the **wholesome fanfiction** written by one of our members.
 
 * Comming soon: Our official group canon, as collected over many meetings and *muggle studies* sessions!
+* Last updated on Juli 14 2021.
 
 ![Some of our members](group_pic_tiny.jpg)
 
@@ -28,6 +29,3 @@ Our favorite **sacred practices:**
 * *Sacred Imagination*: Someone prepares and reads a scene from the chapter, while the others are invited to close their eyes. Afterwards we discuss how we felt and whom we imagined ourselves as.
 * [*Lectio Divina*](https://en.wikipedia.org/wiki/Lectio_Divina): 4 step catholic practice, in which we pick a random sentence and answer - in order: Where are we in the story? What allegorical images [...] come to mind? What experiences from our own lives does this remind us of? And finally: What actions do we feel called to take?
 * [...]
-
----
-**Last updated** on Juli 14 2021.
